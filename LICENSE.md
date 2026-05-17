@@ -1,4 +1,4 @@
-# 
+# Nuevo DaVinci Resolve para PC complementos es el mejor DaVinci Resolve para PC complementos con animación de fotogramas clave y capas 3D. Seguro, confiable y optimizado para el
 
 
 
